@@ -1,0 +1,1 @@
+# qa1_pt_vadym_chernetskyi
